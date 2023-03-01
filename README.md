@@ -6,6 +6,7 @@ Software Developer
 
 * 🌍  I'm based in Amnat, Thailiand
 * ✉️  You can contact me at [sirawichcaster@gmail.com](mailto:sirawichcaster@gmail.com)
+* 🧠  I'm learning Discord: https://discord.gg/raKWBMV3RJ
 
 ### Skills
 
